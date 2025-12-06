@@ -99,10 +99,16 @@
 
 ## 8. How can you make your communication assertive? You can watch and analyse the videos, then think what would be a few steps you can apply in your own life? (Watch the videos first before answering this question.)
 
-- I'll try to notice my feelings and needs before speaking, so I can express them clearly.
+- Notice and understand your feelings and needs before speaking.
 
-- I'll pay attention to my body language, keeping good posture, calm gestures, and eye contact.
+- Maintain confident body language: good posture, calm gestures, and eye contact.
 
-- I'll speak up without waiting too long, instead of letting my thoughts or feelings build up.
+- Speak up at the right time instead of holding things in.
 
-- I'll use "I" statement when expressing my opiniions or feelings to avoid blaming others.
+- Use “I” statements to express your thoughts without blaming others.
+
+- Listen actively and let others finish before you respond.
+
+- Set clear boundaries when needed and say “no” politely but firmly.
+
+- Stay calm even if the situation is tense, and focus on solutions.
